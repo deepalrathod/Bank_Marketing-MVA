@@ -6,5 +6,7 @@ Find the best strategies to improve for the next marketing campaign. How can the
 
 Group Members:
 •	  Deepal Rathod
+
 •	  Shamali Shah
+
 •	  Mohit Shukla
